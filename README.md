@@ -1,2 +1,3 @@
 # Blank-July-2020-Calendar
 We Provide Best and Latest Free Printable Calendar. Free Download These Calendars and Schedule Your #dailytask, You Can Easily #schedule Every Thing By Using These #calendars and Make Easy Life. July is coming now, schedule your every task, work, and etc so also download monthly, weekly, and yearly calendar template for many formats available here like landscape, vertical, portrait, and horizontal. Also available PDF, Word, Excel format more information visit our websites and check out more ideas and make easy life thank you, friends.
+http://freecalendarkart.com/july-2020-blank-calendar/
